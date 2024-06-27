@@ -1,7 +1,8 @@
-# Wepsite-Personal
+# Website-Personal
 HALLO Terimaksih jika kalian sudah berkunjung di website saya
 Nama saya aditiya 
 web ini menceritakan tentang saya dengan singkat.
+
 I was born in Kalimantan, Tamiyang village, Tanta sub-district, Tabalong regency, my area is often called Warukin, I was born in 2006/12/30.
 When I was still in elementary school I liked a beautiful woman. At that time I was still in grade 3 of elementary school. I really loved her and really loved her with all my heart.
 After I graduated from elementary school and continued my schooling to junior high school, I was still in the same class as her. At that time, she became more beautiful and very kind-hearted. I was also very lucky to be able to sit behind her until "I felt, is this the meaning of soul mate.......
